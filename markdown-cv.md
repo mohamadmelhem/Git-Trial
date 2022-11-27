@@ -14,7 +14,7 @@ I am ambitious , passionate , cheerful, team work and hardworking person .
 
 # EMPLOYMENT HISTORY
 
-*2017  to 2019:* Heaxagon , kobbe , men's wear  
+*2018  to 2019:* Heaxagon , kobbe , men's wear  
 
 
 
